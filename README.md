@@ -6,3 +6,5 @@ short story
 
 It's complicated and I don't wish to discuss it. It's none of your concern. You know what, let's just say that I have a hell of a lot more on my mind, right now, than thinking about buying a damn car wash. Okay? So if you could just..
 -tomi
+
+> ![gif](https://media.giphy.com/media/3ohs4hvKNdKyPiIkV2/source.gif)
