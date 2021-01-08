@@ -8,3 +8,7 @@ It's complicated and I don't wish to discuss it. It's none of your concern. You 
 -tomi
 
 help me collect 7 dragons balls and summon the dragon, that'll be cool~
+
+
+
+![gif](https://media.giphy.com/media/3ohs4hvKNdKyPiIkV2/source.gif)
